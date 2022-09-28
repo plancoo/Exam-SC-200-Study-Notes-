@@ -1,1 +1,1 @@
-# Exam-SC-200-Study-Notes-
+# Exam-SC-200-Study-Notes 
